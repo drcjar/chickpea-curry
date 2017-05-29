@@ -1,6 +1,3 @@
-# chickpea-curry
-chickpea curry recipe
-
 # Tomato Chutney
  
 ## Makes enough for 12 people

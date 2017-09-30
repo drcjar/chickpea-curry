@@ -11,6 +11,10 @@
 - 2.5oz sugar
 - 4-5 dried apricots-will bring from home
 - 2 fresh hot chilli peppers
+
+Slice ginger finely. Heat oil, put in red chillis. Stir once then add garlic and ginger. Stir for five seconds then add toms,
+sugar, and salt. Simmer on med flame until it begins to thicken (this make take 15-20 mins). Add appricots and green chillis. 
+Simmer for about 10-15 mins of until chutuney is thick and glazed look. Serve at room temp. 
  
 # Coconut Chutney
  
@@ -24,6 +28,8 @@
 - 1 tbsp lemon juice 1/4 tsp salt and pepper
 - large carton natural yogurt
 - 4 small onion
+
+Blend everything except yoghurt. Add this later. 
  
 # Workers' curry (Chana masala)
  
@@ -42,4 +48,18 @@
 - 3/4 teaspoon ground cumin
 - 1/2 teaspoon chilli powder
 - 1/4 teaspoon ground turmeric
+
+Rinse and drain chickpeas. 
+
+Pound the ginger, garlic, and green chilli together in a pestle and mortar with a pinch of salt until it turns into a 
+paste.
+
+Put the oil into a large frying pan on a medium heat. When it's hot, add the onions and cook for 10 or 12 minutes, or until
+golden brown. Don't skimp on time and stir frequently. When the onions have coloured, add the ginger, garlic and chilli paste 
+and stir through. Tip in the tomatoes, crushing them with your other hand before they hit the pan. Add the tomatoe puree, stir
+well and cook for 8 to 10 minutes, or until it becomes a thick rich sauce.
+
+Add garam masala, 1 and 1/2 teaspoons of salt, cumin, chilli powder and tumeric, and cook for a couple of minutes before adding
+chickpeas. Check consistency. I like to add around 5 or more tablespoons of water at this point, to thin the sauce a little.
+Stir well and cook for another 5 minutes. Taste and adjust any seasoning as you require.
 

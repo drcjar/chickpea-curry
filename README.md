@@ -33,7 +33,7 @@ Blend everything except yoghurt. Add this later.
  
 # Workers' curry (Chana masala)
  
-## Makes enough for 4 people
+## Makes enough for 12 people
  
 - 200g dried chickpeas or 6x 400g tins of chickpeas
 - 9cm ginger, peeled and roughly chopped

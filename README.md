@@ -37,17 +37,17 @@ Blend everything except yoghurt. Add this later.
  
 - 200g dried chickpeas or 6x 400g tins of chickpeas
 - 9cm ginger, peeled and roughly chopped
-- 2 cloves of garlic, roughly chopped
-- 1 fresh green chilli, roughly chopped
+- 6 cloves of garlic, roughly chopped
+- 3 fresh green chilli, roughly chopped
 - salt
-- 3 tbsp rapeseed oil
-- 4 onions, sliced
-- 4 x 400g tin of good quality plum tomatoes
-- 1 tbsp tomato puree
-- 1 teaspoon garam masala will bring spices from home
-- 3/4 teaspoon ground cumin
-- 1/2 teaspoon chilli powder
-- 1/4 teaspoon ground turmeric
+- 9 tbsp rapeseed oil
+- 6 onions, sliced
+- 3 x 400g tin of good quality plum tomatoes
+- 3 tbsp tomato puree
+- 3 teaspoon garam masala will bring spices from home
+- 21/4 teaspoon ground cumin
+- 1 1/2 teaspoon chilli powder
+- 3/4 teaspoon ground turmeric
 
 Rinse and drain chickpeas. 
 
